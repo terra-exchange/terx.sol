@@ -11,4 +11,5 @@ Fair lunch 100% Community driven.
 All team participated in the fair launch with everyone else.
 
 Website: https://terra-exchange.com/
+
 Telegram: https://t.me/terx_terraexchange
